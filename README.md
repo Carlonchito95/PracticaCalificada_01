@@ -1,0 +1,5 @@
+# PracticaCalificada_01![captura 1](https://user-images.githubusercontent.com/81590043/184569945-f7974a98-32a4-4e37-89ec-1f4b7f49e549.jpg)
+![captura 2](https://user-images.githubusercontent.com/81590043/184569969-6efaa21e-dd8a-4fe3-b2d5-549c006eccea.jpg)
+![captura 3](https://user-images.githubusercontent.com/81590043/184569976-50167b17-33f3-43c3-9668-a7e6080fa1b4.jpg)
+![captura 4](https://user-images.githubusercontent.com/81590043/184569981-e2690cd3-b1ed-47f2-99f7-b706b3dd2018.jpg)
+![captura 5](https://user-images.githubusercontent.com/81590043/184569984-047c2815-a5bf-447c-8e92-2715e0396380.jpg)
